@@ -1,0 +1,1 @@
+# safeti-star.github.io
